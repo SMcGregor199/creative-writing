@@ -1,0 +1,1 @@
+In the split second before the world unspooled into chaose, as the rain reminded the streets of its eternal rule, Vashon's gaze caught the flickering neon one last time, and in it, the deepest of paradoxies; desire and escape, all wrapped in the same smoldering haze.
